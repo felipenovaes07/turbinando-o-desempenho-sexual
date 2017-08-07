@@ -1,6 +1,6 @@
 ## A História de desencadear o Desempenho Sexual Refutado
 
-O sexo é uma faceta da vida que é cheia de paradoxos. É mais do que apenas [Turbinando o desempenho sexual](http://www.blogdagimenez.com.br/turbinando-o-desempenho-sexual/) uma resposta física. **Mesmo na melhor relacionamento, ele pode se tornar maçante depois de um certo número de anos**. Com a ajuda de sua ingestão normal, você pode desfrutar do sexo de novo e fazer o seu parceiro sexualmente feliz.
+O sexo é uma faceta da vida que é cheia de paradoxos. É mais do que apenas [Turbinando o desempenho sexual] uma resposta física. **Mesmo na melhor relacionamento, ele pode se tornar maçante depois de um certo número de anos**. Com a ajuda de sua ingestão normal, você pode desfrutar do sexo de novo e fazer o seu parceiro sexualmente feliz.
 
 É fundamental que você não esqueça que o sexo em uma base normal é valioso para uma forma sadia de vida, e um relacionamento saudável. Embora as mulheres não têm tanta testosterona que os homens, ainda desempenha um papel importante na sua libido. Se você pensar na sua mulher e não quero acabar por perdê-la devido a sua sexualidade apreensões, falar com ela.
 
